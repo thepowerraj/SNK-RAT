@@ -57,7 +57,7 @@ Hello frinds We makeing a fully advance and fud SNK RAT but we have no money ple
 - 5$ 10$, 15$, 20$ 50$
 - bitcoin: 134zX3xu9vAJprsGrGQ7pUjzf2edNZUyjr
 - ETH:  0x64f870D893296Fa6c160d548d79D4768b17B4979
--USDT: 0x64f870D893296Fa6c160d548d79D4768b17B4979
+- USDT: 0x64f870D893296Fa6c160d548d79D4768b17B4979
 
 
 
