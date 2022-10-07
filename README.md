@@ -52,7 +52,15 @@ Hello frinds We makeing a fully advance and fud SNK RAT but we have no money ple
 - ✅ formet device
 - ✅ if you want any Features i miss (tell me telegram)
 
+## This rat makeing budget 1250$
 # donate us
+- 5$ 10$, 15$, 20$ 50$
 - bitcoin: 134zX3xu9vAJprsGrGQ7pUjzf2edNZUyjr
 - ETH:  0x64f870D893296Fa6c160d548d79D4768b17B4979
 -USDT: 0x64f870D893296Fa6c160d548d79D4768b17B4979
+
+
+
+## Support
+
+For support, rs5283611@gmail.com
