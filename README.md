@@ -7,6 +7,8 @@ Hello frinds We makeing a fully advance and fud SNK RAT but we have no money ple
 
 # BUY NOW
 
+
+
 [![https://t.me/snkrat](https://img.shields.io/badge/Telegram-SNKRAT-blue.svg?style=flat-square)](https://t.me/snkrat)
 
 ## Please Give Me Star⭐
